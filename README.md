@@ -1,2 +1,13 @@
 # ggd-nerve-agents
-2002-2022 doktor robin in aktion
+
+2002-2022 
+
+https://en.wikipedia.org/wiki/Bioterrorism
+
+https://en.wikipedia.org/wiki/Municipal_Health_Service
+
+https://nl.wikipedia.org/wiki/Huisartsenpost
+
+https://nl.wikipedia.org/wiki/Staat_der_Nederlanden
+
+doktor robin in aktion
